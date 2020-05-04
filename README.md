@@ -1,0 +1,2 @@
+# AprilDink
+the discord server 
